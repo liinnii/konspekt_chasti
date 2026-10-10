@@ -1,0 +1,1 @@
+# konspekt_chasti
